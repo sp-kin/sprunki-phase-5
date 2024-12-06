@@ -1,6 +1,6 @@
 # Sprunki Phase 5 MOD - Play Sprunki Incredibox Phase 5 Online
 
-| [PLAY PHASE 3 ONLINE!](https://modmeme.com/)           |
+| [PLAY PHASE 5 ONLINE!](https://modmeme.com/)           |
 |:---------------------------------------:|
 | [**MORE GAMES**](https://apkitech.com/) |
 | ![image](https://github.com/user-attachments/assets/77f6c3eb-c079-455a-b54d-5f9b695357ae) |
